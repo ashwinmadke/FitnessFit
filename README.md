@@ -1,1 +1,1 @@
-Link - https://ashwinmadke0813.github.io/FitnessFit/
+Link - https://ashwinmadke.github.io/FitnessFit/
